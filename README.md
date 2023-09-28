@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @heridfel04
-- 👀 I’m interested in Software ENgineering
+- 👀 I’m interested in Software Engineering
 - 🌱 I’m currently learning Bacheor of Technology
 - 💞️ I’m looking to collaborate on MAANGS COmpanies
 - 📫 How to reach me on instagram: leopard.07
